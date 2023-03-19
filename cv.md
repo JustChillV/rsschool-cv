@@ -9,8 +9,11 @@
 #### Contact information:
 
 **Phone**: +7 969-793-71-64
+
 **E-mail**: vladtolstov@yandex.ru
+
 **Telegram**: @VladJustChill
+
 [**LinkedIn**]()
 
 --------
